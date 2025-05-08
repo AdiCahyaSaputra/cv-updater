@@ -1,0 +1,1 @@
+Semua codingan dibuat oleh TraeAI 
